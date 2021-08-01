@@ -1,0 +1,1 @@
+Até agora estou gostando bastante do curso. É bem completo não só em assuntos técnicos, mas também em outros conteúdos que desenvolvem diversas habilidades.
